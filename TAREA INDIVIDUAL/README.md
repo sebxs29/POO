@@ -1,0 +1,3 @@
+# TAREA INDIVIDUAL
+
+## Sebastian Toapanta
